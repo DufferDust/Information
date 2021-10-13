@@ -10,3 +10,11 @@ In this Community Server we have special giveaways
 
 Announcements
 
+Youtube video updates
+
+And Much More!
+
+Have a Great Time In this Server
+
+
+Goodbye
